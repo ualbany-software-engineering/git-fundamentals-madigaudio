@@ -1,0 +1,1 @@
+Hi, my name is Mason DiGaudio. I am a computer science major in my senior year with a double minor in mathematics and informatics. 
